@@ -1,7 +1,7 @@
 # Morning Posts — Saturday, April 11, 2026
 
 **Post Time:** 7:00 AM CT
-**Theme:** Transformations, before/after, fresh starts
+**Theme:** Spring season, promos, customer appreciation, tips, lifestyle
 **Total Posts:** 7
 
 ---
@@ -9,154 +9,154 @@
 ## 1. French Nails & Spa — Mableton, GA
 
 **Platform:** Instagram
-**Content Type:** Before/After Transformation
+**Content Type:** Seasonal Spring Promo
 
 **Hook:**
-She came in with chipped gel. She left with THIS.
+Spring nails hit different when they're done right.
 
 **Caption:**
-Old nails out. New energy in. Black coffin set, sharp edges, no excuses. This is what the French Nails & Spa standard looks like — and your Saturday appointment is still open.
+New season. New set. French Nails & Spa is running our Spring refresh special — and it won't last long. Bold colors, sharp edges, that elite finish Mableton knows us for. Treat yourself before the weekend fills up.
 
 **Call to Action:**
-Call us now to grab your slot: (770) 944-0520
+Call now to lock in your spot: (770) 944-0520
 
 **Hashtags:**
-#MabletonNails #FrenchNailsSpa #LuxuryNails #NailSalonNearMe #GeorgiaNails
+#MabletonNails #SpringNails #FrenchNailsSpa #NailSalonNearMe #GeorgiaNails
 
 **Suggested Visual:**
-Side-by-side split photo — left: chipped, worn gel nails on dark background. Right: flawless black coffin set with subtle gold accent on the ring finger, dramatic lighting, tight crop on hands.
+Flat-lay of fresh spring nail inspo board — black coffin nails with a single gold foil accent alongside loose spring flowers (deep burgundy or black tulips). Dark marble surface. Moody, editorial, seasonal. Text overlay: "Spring Sets Are Here."
 
 ---
 
 ## 2. Belgravia Nail Spa Tanglewood — Houston, TX
 
-**Platform:** TikTok
-**Content Type:** Fresh Start / Weekend Energy Reel
+**Platform:** Facebook
+**Content Type:** Customer Appreciation
 
 **Hook:**
-Saturday nails hit different when you actually start fresh.
+She's been coming every 3 weeks for 2 years. This one's for her.
 
 **Caption:**
-New week doesn't start Monday — it starts right now. Belgravia Tanglewood is open and we're ready for you. Soft, clean, flawless. The way it should be.
+Our clients aren't just clients — they're family. To every woman who's trusted us with her nails, her time, and her self-care routine: thank you. You're the reason Belgravia is Houston's standard for luxury. We see you, and we appreciate you more than you know.
 
 **Call to Action:**
-DM us or call to grab your Saturday slot: (713) 360-2345
+Ready to experience it for the first time? Call us: (713) 360-2345
 
 **Hashtags:**
-#HoustonNails #BelgraviaNailSpa #LuxuryNails #NailSalonNearMe #TanglewoodHouston
+#HoustonNails #BelgraviaNailSpa #ClientLove #NailSalonNearMe #TanglewoodHouston
 
 **Suggested Visual:**
-Time-lapse TikTok reel: nail tech applying a fresh beige gel set from bare nail to finished glossy look. Soft natural morning light, warm beige tones, satisfying close-up reveals. Overlay: "Belgravia Tanglewood — Houston's luxury standard."
+Warm lifestyle photo: nail tech gently holding a client's finished hands — both smiling, soft natural light, beige and gold tones throughout. Feels genuine, not staged. Emotion-driven, not product-driven.
 
 ---
 
 ## 3. American Nail Bar — Euless, TX
 
-**Platform:** Facebook
-**Content Type:** Saturday Morning Transformation Reveal
+**Platform:** Instagram
+**Content Type:** Nail Care Tip
 
 **Hook:**
-Your nails say everything before you say a word. Make sure they're saying the right thing.
+This one tip will make your gel set last twice as long.
 
 **Caption:**
-Saturday morning means fresh nails. Clean lines, perfect finish, the kind of set that turns heads at brunch, at dinner, everywhere in between. Walk in or call ahead — we're ready for you.
+No picking. No peeling. Moisturize your cuticles every night — a little oil goes a long way. And when it's time for a fresh set, you know where to find us. Clean. Precise. Done right every time.
 
 **Call to Action:**
-Walk-ins welcome. Call ahead to guarantee your spot: (817) 684-7700
+Walk-ins welcome or call ahead: (817) 684-7700
 
 **Hashtags:**
-#EulessNails #AmericanNailBar #LuxuryNails #NailSalonNearMe #TexasNails
+#NailCare #EulessNails #AmericanNailBar #NailTips #NailSalonNearMe
 
 **Suggested Visual:**
-Close-up lifestyle photo: finished cream and soft gold gel nails wrapped around a coffee mug, morning light coming through a window. Clean, minimal, polished aesthetic. No clutter in frame.
+Short 15-second Reel: close-up of a nail tech applying cuticle oil to a clean cream gel set, massaging it in. Clean blue and cream aesthetic in the background. Text overlay tip: "Cuticle oil = longer-lasting nails." Ends on the American Nail Bar logo.
 
 ---
 
 ## 4. Best Nail Salon Near Me Fort Worth — Fort Worth, TX
 
-**Platform:** Instagram
-**Content Type:** Weekend Fresh Start
+**Platform:** TikTok
+**Content Type:** Lifestyle / Experience
 
 **Hook:**
-Your Saturday just got a serious upgrade.
+This is what a Saturday morning in Fort Worth should feel like.
 
 **Caption:**
-Fort Worth's favorite nail experience is open and ready to transform your weekend. Fresh set. New energy. The kind of nails you can't stop looking at. Come see us before we fill up.
+Good music. Good people. A fresh set that makes you feel like the main character. Come hang with us — Fort Worth's favorite nail experience is open and ready. No stress, just vibes and perfect nails.
 
 **Call to Action:**
-Call or walk in today — tag a friend who needs to come with you.
+Tag your nail date and come see us today.
 
 **Hashtags:**
-#FortWorthNails #NailSalonNearMe #LuxuryNails #BestNailSalon #TexasNails
+#FortWorthNails #NailSalonNearMe #SaturdayVibes #LuxuryNails #TexasNails
 
 **Suggested Visual:**
-Bright spring lifestyle photo: close-up of a fresh almond-shaped set in beige and gold tones, held against a background of spring flowers. Natural outdoor light, inviting and warm energy.
+TikTok POV reel: walk-in experience from the door — warm lighting, upbeat music playing, nail tech greeting the camera, then cutting to a time-lapse of a fresh beige almond set being built. Ends on the finished nails held up near a window with soft morning light. Inviting, fun, real.
 
 ---
 
 ## 5. Palazzo Nail Lounge River Oaks — Houston, TX
 
-**Platform:** Facebook
-**Content Type:** Luxury Saturday Transformation
+**Platform:** Instagram
+**Content Type:** Limited-Time VIP Offer
 
 **Hook:**
-River Oaks women don't settle. Neither do their nails.
+River Oaks doesn't do waitlists — until now.
 
 **Caption:**
-Every set at Palazzio is built for women who expect the best — because that's exactly what we deliver. 60 spa chairs, private VIP rooms, and a standard that the rest of Houston can't match. Saturday slots are going fast.
+Saturday VIP slots at Palazzo are filling up fast. If you want the private suite, the full luxury experience, and nails that belong on a magazine cover — you need to move now. This is the standard Houston's elite expects.
 
 **Call to Action:**
-Reserve your seat now. Call or book online.
+Reserve your VIP chair now. Call or book online — limited slots remain.
 
 **Hashtags:**
-#RiverOaksHouston #PalazzoNailLounge #LuxuryNails #HoustonNails #NailSalonNearMe
+#RiverOaksHouston #PalazzoNailLounge #VIPNails #HoustonNails #NailSalonNearMe
 
 **Suggested Visual:**
-Overhead glamour shot: long beige and gold almond nails resting against a marble surface, designer bag slightly visible in the background. Warm, aspirational, elevated. The kind of image that feels expensive just to look at.
+Overhead luxury shot: long beige and gold almond nails resting on a white marble table — a glass of champagne slightly out of focus in the background. Aspirational, expensive-feeling. Add subtle text: "Your Saturday should feel like this."
 
 ---
 
 ## 6. Bellagio Nails & Spa — Fort Worth, TX
 
-**Platform:** TikTok
-**Content Type:** Before/After Spa Reveal
+**Platform:** Facebook
+**Content Type:** Spring Relaxation / Seasonal
 
 **Hook:**
-We took her nails from "I give up" to "wait, let me see those again."
+Spring is here. Your nails should show it.
 
 **Caption:**
-4.8 stars. 20,000+ happy clients. Fort Worth's most loved nail spa. Now come see what the hype is about — Saturday is the perfect day to treat yourself right.
+Soft colors. Fresh energy. The kind of set that feels like a deep breath. April at Bellagio means spring florals, pastel chromes, and that signature spa experience Fort Worth keeps coming back for. You deserve to feel this good.
 
 **Call to Action:**
-Call (817) 306-6020 or walk in. We're ready.
+Call us to book your spring set: (817) 306-6020
 
 **Hashtags:**
-#FortWorthNails #BellagioNails #LuxurySpa #NailSalonNearMe #NailTransformation
+#FortWorthNails #SpringNails #BellagioNails #NailSalonNearMe #LuxurySpa
 
 **Suggested Visual:**
-Satisfying TikTok before/after reel: starts on worn, grown-out nails — cut to finished cream chrome or soft pink set with perfect shape. Calm spa background music overlay. End card: "Bellagio Nails & Spa — Fort Worth's #1 rated."
+Dreamy flat-lay: cream and soft lavender almond nails surrounded by scattered spring petals — light gold accents, warm natural light. Calm, peaceful, spa energy. No harsh shadows, everything feels soft and serene.
 
 ---
 
 ## 7. NO1 Nail Bar — Mt. Juliet, TN
 
 **Platform:** Instagram
-**Content Type:** Bold Transformation
+**Content Type:** Bold Authority Statement
 
 **Hook:**
-Soft nails aren't from here.
+There's a reason they keep calling us #1.
 
 **Caption:**
-Mt. Juliet's #1 nail bar doesn't do basic. Bold sets for women who walk into a room and own it. Saturday is reserved for exactly that energy — are you in?
+Mt. Juliet's best nail bar doesn't need to explain itself. The sets speak. The results speak. The reviews speak. If you've been thinking about it — stop thinking and come in. Saturday energy only.
 
 **Call to Action:**
-Call or walk in today. Limited Saturday slots available.
+Call or walk in today. See what #1 actually looks like.
 
 **Hashtags:**
-#MtJulietNails #NO1NailBar #TennesseeNails #NailSalonNearMe #LuxuryNails
+#MtJulietNails #NO1NailBar #NailSalonNearMe #TennesseeNails #LuxuryNails
 
 **Suggested Visual:**
-Tight, high-contrast close-up: bold red coffin nails or black with red detailing, dramatic side lighting, dark background. No softness in this shot — sharp, powerful, editorial quality.
+High-contrast editorial close-up: bold black and red stiletto or coffin nails, dramatic single-source side lighting, deep black background. No softness — sharp, powerful, dominant. This image should feel like a statement.
 
 ---
 
